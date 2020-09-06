@@ -1,6 +1,6 @@
 # Tác dụng của tầm gửi cây nghiến
 ## Tác dụng của cây tầm gửi
-**[Tầm gửi cây nghiến](http://https://caycohoaqua.com/blog/tam-gui-cay-nghien-mat-gan-bo-than-chua-dau-xuong-khop) có rất nhiều tác dụng tốt cho sức khỏe của bạn, theo chúng tôi được biết thì tầm gửi cây nghiến có những tác dụng chính sau
+**[Tầm gửi cây nghiến](http:// https://caycohoaqua.com/blog/tam-gui-cay-nghien-mat-gan-bo-than-chua-dau-xuong-khop) có rất nhiều tác dụng tốt cho sức khỏe của bạn, theo chúng tôi được biết thì tầm gửi cây nghiến có những tác dụng chính sau
 ### Tác dụng bổ thận
 ### Tác dụng tốt cho xương khớp
 ### Tác dụng làm mát gan

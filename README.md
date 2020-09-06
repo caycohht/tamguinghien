@@ -19,9 +19,9 @@
  
  ### Video [Tác dụng của tầm gửi nghiến](http://https://www.youtube.com/watch?v=YlVK-uLm_jQ)
  
- https://www.youtube.com/watch?v=YlVK-uLm_jQ)
+ https://www.youtube.com/watch?v=YlVK-uLm_jQ
  
- {@youtube: https://www.youtube.com/watch?v=YlVK-uLm_jQ)}
+ {@youtube: https://www.youtube.com/watch?v=YlVK-uLm_jQ}
 
 Cách ngâm tầm gửi nghiến
 Tầm gửi cây gạo

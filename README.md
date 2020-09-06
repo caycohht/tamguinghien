@@ -1,10 +1,10 @@
 # Tác dụng của tầm gửi cây nghiến
 ## Tác dụng của cây tầm gửi
 **[Tầm gửi cây nghiến](http://https://caycohoaqua.com/blog/tam-gui-cay-nghien-mat-gan-bo-than-chua-dau-xuong-khop) có rất nhiều tác dụng tốt cho sức khỏe của bạn, theo chúng tôi được biết thì tầm gửi cây nghiến có những tác dụng chính sau
-  ### Tác dụng bổ thận
-  ## Tác dụng tốt cho xương khớp
-  ### Tác dụng làm mát gan
-  ### Tác dụng thải độc
+### Tác dụng bổ thận
+### Tác dụng tốt cho xương khớp
+### Tác dụng làm mát gan
+### Tác dụng thải độc
    Tác dụng của tầm gởi nghiến chữa bệnh gì: đau nhức xương khớp, huyết áp cao, suy thận… bí quyết tiêu dùng tầm gửi nghiến rẻ, hạn chế tác dụng phụ tác hại của tầm gởi nghiến. 
    ## Cách dùng củ tầm gửi nghiến 
   bí quyết dùng tầm gởi nghiến sắc nấu uống, ngâm rượu. 
@@ -18,7 +18,8 @@
  **Tầm gửi nghiến còn có tên gọi là củ tầm gửi nghiến các bạn chú ý phân biệt
  
  ### Video [Tác dụng của tầm gửi nghiến](http://https://www.youtube.com/watch?v=YlVK-uLm_jQ)
- 
+ https://www.youtube.com/watch?v=YlVK-uLm_jQ)
+ {@youtube: https://www.youtube.com/watch?v=YlVK-uLm_jQ)}
 
 Cách ngâm tầm gửi nghiến
 Tầm gửi cây gạo
